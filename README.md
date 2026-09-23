@@ -1,2 +1,0 @@
-# collaborazione
-siamo molto forti
